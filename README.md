@@ -1,4 +1,5 @@
-# Hi there 👋,  skyler sujon
+# Hi there 
+👋, skyler sujon
 ####   I Am MD NOBI MIA .The job isn't complete until my client is satisfied! I work hard to earn the best feedback from my clients. If you are looking for a web professional at an affordable price, look no further. Browse my portfolio, feedback, and projects, and please do not hesitate to reach out to me. Full-time on UPWORK ! I'll always pay special attention to your projects.
 ![  I Am MD NOBI MIA .The job isn't complete until my client is satisfied! I work hard to earn the best feedback from my clients. If you are looking for a web professional at an affordable price, look no further. Browse my portfolio, feedback, and projects, and please do not hesitate to reach out to me. Full-time on UPWORK ! I'll always pay special attention to your projects.]( https://scontent.fdac5-2.fna.fbcdn.net/v/t39.30808-6/318368834_142688508554765_3422096838936987462_n.jpg?stp=dst-jpg_p720x720&_nc_cat=108&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeG-eSCfJABprfpzPYk_j3iQ1KcugXRAT0TUpy6BdEBPRIn10UKebWvZJbB3RvLBP4XSkobuw9B0MUeSyQUF-t4i&_nc_ohc=lZ3AMO9j7F8AX_54jTo&_nc_ht=scontent.fdac5-2.fna&oh=00_AfCqeJEq67E9Py3unEWjcz_XwZ12xrw3jpU_baML4wGZuw&oe=63C4E63F)
 
